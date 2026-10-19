@@ -1,0 +1,2 @@
+# premium-clay-oven-001-wood-fired-clay-oven-dome-rati
+Stop guessing your dome dimensions and ending up with a cracking oven or uneven heat. The Wood-Fired Clay Oven Dome Ratio Calculator takes the math out of the equation, giving you a precise, adjustable blueprint for a perfect dome every time.  This Notion template eliminates the trial-and-error of dome construction. Instead of relying on vague onli
